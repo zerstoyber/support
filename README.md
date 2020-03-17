@@ -1,1 +1,1 @@
-SUpport Dresden Music Humans
+Support Dresden Music Humans
